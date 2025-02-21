@@ -1,7 +1,7 @@
 
 海角妈妈真实记录视频
 
-<a href="https://2ndjcj11.kesang6to.com?https://github.com">→→最/新/观/看/入/口←←</a>
+<a href="https://m8k3.cc">→→最/新/观/看/入/口←←</a>
 
 用问？当然是看你的笑话，当然是来落井下石的。”扶摇说。
 
